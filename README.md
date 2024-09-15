@@ -1,3 +1,4 @@
+![1500x500](https://github.com/user-attachments/assets/4c4ef710-3755-4d6d-9bbb-005a27cbbfd3)
 ## About me 👋
 
 Hey there I'm Alessio, a 17 year old student from Italy with a passion for IT since I was a child.
